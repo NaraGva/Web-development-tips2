@@ -1,0 +1,2 @@
+# Web-development-tips2
+Regardless of being online or offline, the majority of businesses underpin their presence on the internet. The first step in this direction is that the business owns a website. By doing so you inform the people that are in need of your product or service about your production, establish a trust for your brand, create the opportunity for people to be able to communicate with you and support your various marketing activities. To learn more: https://www.interactivemedia.az/en/website_development/
